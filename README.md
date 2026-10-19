@@ -1,2 +1,0 @@
-# Juusonlista
-oma nettisivuni
